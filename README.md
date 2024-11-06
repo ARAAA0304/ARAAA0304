@@ -1,5 +1,5 @@
 - 👋 Holaaa xdd Soy Ara :3
-- 👀 Básicamente ingrese acá porque me quiero instalar minecraft apk :>
+- 👀 Básicamente entre acá porque me quiero instalar minecraft apk :>
 - 🌱 Ya que estoy.. me encanta la nuturaleza
 - 💞️ Sinceramente no busco colaborar con nadie (ni si quiera sé cómo se hace :v)
 - 📫 tengo un canal de YouTube que se llama AraSKZ, casi ni tengo videos y son de ♡k-pop♡
